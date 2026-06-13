@@ -1,9 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=kmshirorui&label=ㅤㅤgive‎ㅤmeㅤtheㅤspyglass.ㅤㅤ&color=bb95ed)
 
-                                  負けんな 覚醒せよ 鼓動達よ, 
-                                  君の歌いたかった物がきっとあるんだ... 
-                                  ふざけるな...
-                                  - CYBERPUNK DEAD BOY
+                                  ...Before you hurt yourself.
 
 
 
